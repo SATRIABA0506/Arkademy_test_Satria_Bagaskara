@@ -1,1 +1,0 @@
-Maaf kk mentor arkademy saya tidak bisa menyelesaikan soalnya. ternyata soalnya wow bagi kelas pemula. saya berharap bisa ikut lagi nanti. terimaksih kk
